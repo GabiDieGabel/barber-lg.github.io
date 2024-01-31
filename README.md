@@ -1,1 +1,0 @@
-# barber-lg.github.io
